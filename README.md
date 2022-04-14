@@ -1,1 +1,0 @@
-# jaykdkqdxrl.github.io
